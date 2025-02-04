@@ -24,6 +24,6 @@ I love turning raw data into *actionable insights* that drive better decisions.
 ## 📫 Contact Me  
 
 📧 Email: youssef.haggag293@gmail.com
-🔗 LinkedIn: [Your LinkedIn Profile](www.linkedin.com/in/youssef-haggag-24134134b)  
+🔗 LinkedIn: [my LinkedIn Profilewww.linkedin.com/in/youssef-haggag-24134134b](www.linkedin.com/in/youssef-haggag-24134134b)  
 
 Feel free to explore my projects and reach out!
